@@ -1,3 +1,3 @@
 # hello-world
-This is for new-comer like me to Github.
-I'm a growing person who's open to new things and curious about the world.
+
+a vancouverite, international foodie, just finished my 1st marathon, 5h43min, pretty fast hah :P
